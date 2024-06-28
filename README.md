@@ -13,7 +13,8 @@
 
 - 📫 How to reach me **sulyaharsh321@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAF6JGe_i_g/iRhQfT487-DNEeNyuP-Hfg/view?utm_content=DAF6JGe_i_g&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF6JGe_i_g/iRhQfT487-DNEeNyuP-Hfg/view?utm_content=DAF6JGe_i_g&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hkRkw4CcWFJ5PvWzupy9IW4obQz4dfuU/view?usp=sharing](https://drive.google.com/file/d/1hkRkw4CcWFJ5PvWzupy9IW4obQz4dfuU/view?usp=sharing)
+
 
 - ⚡ Fun fact **I am Shy**
 
